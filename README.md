@@ -2,7 +2,7 @@
 I'm surprised you actually clicked this, But here we are.
 
 For clarification.
-If your looking for the creator of Apophenia,Reaper,Jester,Arcaurs,Volta,Floating Girl, Redsign, Star Glitcher, Thats not me.
+If your looking for the creator of Apophenia,Reaper,Jester,Arcaura,Volta,Floating Girl, Redsign, Star Glitcher, Thats not me.
 That's reap (reap4985)
 
 
